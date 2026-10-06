@@ -1,4 +1,4 @@
-# Hema Creations — Jewellery Catalogue Kit (100% Free)
+# Jewellery Catalogue Kit (100% Free)
 
 Turns your raw phone photos of bangles, hair clips, hair pins, saree pins,
 necklaces (or any category you sell) into a professional, colourful A4
